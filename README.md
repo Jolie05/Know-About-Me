@@ -7,4 +7,4 @@ My summer vacation was really quiet and fun. I basically spent my whole summer a
 
 This site is my (Top 10 Songs on Spotify) [https://open.spotify.com/playlist/0iqLFHXgCyHP0UpkNwYfjc?si=b58fc2b5fd00489e&pt=eaa3d4c04df1a20ee5ee449e383ff57e]<br/>
 
-![My collage:](<img width="1920" height="1080" alt="About me Collge" src="https://github.com/user-attachments/assets/59bbb789-9ddc-4506-8373-66c8fc7410a7" />)
+![My collage:]<img width="1920" height="1080" alt="Random" src="https://github.com/user-attachments/assets/e6f849fb-4abb-49db-956e-bf51f0d3fd99" />)
