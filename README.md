@@ -5,7 +5,7 @@ I also enjoy going camping with my family, I crochet a bit, and I also would lov
 
 My summer vacation was really quiet and fun. I basically spent my whole summer at home. I don’t mind spending so long at my house but it’s the best time for me to relax from a year full of human interaction. But I will try to get out of the house more, like running and walking to the park more often. Most of the time I was doing my summer school. My last few summer weeks were much more fun. I had a soccer tournament for about a week, the week before I had visited my sister at her college. Then the week after I was doing my drivers ed. Some goals I have for this school year is to pass all my classes and all my AP classes.<br/>
 ______________________________
-This site is my Top 10 Songs on Spotify: https://open.spotify.com/playlist/0iqLFHXgCyHP0UpkNwYfjc?si=b58fc2b5fd00489e&pt=eaa3d4c04df1a20ee5ee449e383ff57e
+This site is my 'Favorite Songs' on Spotify: https://open.spotify.com/playlist/0iqLFHXgCyHP0UpkNwYfjc?si=b58fc2b5fd00489e&pt=eaa3d4c04df1a20ee5ee449e383ff57e
 ______________________________
 My collage:
 <img width="1920" height="1080" alt="Random" src="https://github.com/user-attachments/assets/e6f849fb-4abb-49db-956e-bf51f0d3fd99" />
